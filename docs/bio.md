@@ -1,3 +1,6 @@
 ### Intro 
 
-Blablabla
+Alessio Orlando
+Italy
+Pasta alla Carbonara
+videogames
